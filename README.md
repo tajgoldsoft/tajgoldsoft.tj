@@ -1,0 +1,2 @@
+# tajgoldsoft.tj
+Tajgoldsoft Ltd
